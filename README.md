@@ -1,0 +1,2 @@
+# dynamicshomework
+05190000597_merihkucukdogerli
